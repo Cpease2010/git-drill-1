@@ -1,0 +1,1 @@
+<iframe src="https://giphy.com/embed/AckmGL4e1i7M4" width="480" height="360" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/archer-reactiongifs-mrw-AckmGL4e1i7M4">via GIPHY</a></p>
